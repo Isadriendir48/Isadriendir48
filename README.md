@@ -11,7 +11,7 @@
 - 💬 Ask me about ...
   - ... anything, but I cannot assure that I'll have the answer.
 - 📫 How to reach me: 
-  - 
+  - A message through my [LinkedIn profile](https://www.linkedin.com/in/andres-eduardo-olguin-carbajal) should be enough.
 - 😄 Pronouns:
   - Él - He/Him
 - ⚡ Fun fact:
